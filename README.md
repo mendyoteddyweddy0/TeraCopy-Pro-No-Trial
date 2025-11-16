@@ -1,0 +1,1 @@
+# TeraCopy-Pro-No-Trial
